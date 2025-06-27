@@ -12,4 +12,6 @@ Kelas : TI.23.C2
 
 ![image](https://github.com/user-attachments/assets/a1a65108-6eb0-465d-8249-a6dd12a9a78d)
 ![Screenshot 2025-06-23 153503](https://github.com/user-attachments/assets/c20f645b-d6a5-487b-8116-aa47677a9a1f)
+![image](https://github.com/user-attachments/assets/7748357a-2b00-4cd5-8a17-abedd20e65c6)
+
 
